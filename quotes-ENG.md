@@ -5,3 +5,5 @@ George R.R. Martin > Quotes > Quotable Quote
 ― George R.R. Martin, A Game of Thrones 
 https://www.goodreads.com/quotes/452875-love-is-the-bane-of-honor-the-death-of-duty
 * 
+
+meanwhie, see correspondig `.SRT` fies on http://vse-subtitri.ru/tv-shows/game-of-thrones-1492.html 
