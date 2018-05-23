@@ -12,4 +12,6 @@ useful LANGUAGE resources :
 - https://www.macmillandictionary.com/
 - https://www.macmillandictionary.com/
 - https://dictionary.cambridge.org/
+- https://en.oxforddictionaries.com/
+- https://www.collinsdictionary.com/
 - 
