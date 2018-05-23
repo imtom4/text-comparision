@@ -5,3 +5,10 @@ Some points of questions :
 - 2nd
 - 3rd
 - 
+
+useful LANGUAGE resources :
+- http://context.reverso.net/translation/
+- https://english.stackexchange.com/
+- https://www.macmillandictionary.com/
+- 
+- 
