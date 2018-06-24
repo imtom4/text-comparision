@@ -47,6 +47,7 @@ https://el-cap.kiev.ua/turizm/posuda/aksessuary/nabor-emkostey-gsi-soft-sides-co
 https://el-cap.kiev.ua/turizm/posuda/flyagi/flyaga-gsi-glacier-stainless-hip-flask-8-fl-oz-235-ml/
 КОД: 036982
 
+?порівняти
 https://el-cap.kiev.ua/turizm/posuda/flyagi/flyaga-gsi-glacier-stainless-hip-flask-6-fl-oz-175-ml/
 КОД: 036973
 
