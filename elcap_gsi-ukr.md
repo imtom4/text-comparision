@@ -9,7 +9,7 @@
 Довжина в складеному вигляді: 8,9 см
 Материіал: acetal – екологічний пластік, нержавіюча сталь 
 https://el-cap.kiev.ua/turizm/posuda/lozhki-vilki/stolovyy-pribor-gsi-folding-foon-blue/ 
-
+КОД: 036926
 
 
 Кухоль GSI Fairshare Mug II
@@ -19,7 +19,7 @@ https://el-cap.kiev.ua/turizm/posuda/lozhki-vilki/stolovyy-pribor-gsi-folding-fo
 Розміри: 13,5х12х9,8 см
 Матеріал: BPA-Free поліпропілен
 https://el-cap.kiev.ua/turizm/posuda/kruzhki/kruzhka-gsi-fairshare-mug-ii/
-
+КОД: 036978
 
 
 Набір ємностей: GSI Soft Sides Condiment pacs Bottle Set 4 * 60 мл
@@ -34,7 +34,7 @@ https://el-cap.kiev.ua/turizm/posuda/kruzhki/kruzhka-gsi-fairshare-mug-ii/
 Розмір: 9 х 0,9 х 4,5 с
 Вага: 47 г
 https://el-cap.kiev.ua/turizm/posuda/aksessuary/nabor-emkostey-gsi-soft-sides-condiment-paks-bottle-set-4-60-ml/
-
+КОД: 036931
 
 
 Фляга GSI GLACIER STAINLESS Hip Flask 8 має ергономічний дизайн, зручно пасує у кишені. Виготовлена з нержавіючої сталі, що робить її міцною та витривалою. Завдяки широкій горлянці її зручно наповнювати. Сумку для зберігання можливо використовувати, як ганчірку для чищення фляги. Надійна різьбова кришка причеплена хомутом до горлянки фляги.
@@ -44,5 +44,10 @@ https://el-cap.kiev.ua/turizm/posuda/aksessuary/nabor-emkostey-gsi-soft-sides-co
 Об'єм: 235 мл (8 унцій) 
 Вага: 225 г 
 Розміри: 12 x 3 x 15,2 см 
+https://el-cap.kiev.ua/turizm/posuda/flyagi/flyaga-gsi-glacier-stainless-hip-flask-8-fl-oz-235-ml/
+КОД: 036982
+
+https://el-cap.kiev.ua/turizm/posuda/flyagi/flyaga-gsi-glacier-stainless-hip-flask-6-fl-oz-175-ml/
+КОД: 036973
 
 
