@@ -11,12 +11,15 @@
 https://el-cap.kiev.ua/turizm/posuda/lozhki-vilki/stolovyy-pribor-gsi-folding-foon-blue/ 
 
 
-Келих GSI Fairshare Mug II
+
+Кухоль GSI Fairshare Mug II
 
 Об’єм: 0.946 л
 Вага: 0.192 кг
 Розміри: 13,5х12х9,8 см
 Матеріал: BPA-Free поліпропілен
+https://el-cap.kiev.ua/turizm/posuda/kruzhki/kruzhka-gsi-fairshare-mug-ii/
+
 
 
 Набір ємностей: GSI Soft Sides Condiment pacs Bottle Set 4 * 60 мл
@@ -31,6 +34,7 @@ https://el-cap.kiev.ua/turizm/posuda/lozhki-vilki/stolovyy-pribor-gsi-folding-fo
 Розмір: 9 х 0,9 х 4,5 с
 Вага: 47 г
 https://el-cap.kiev.ua/turizm/posuda/aksessuary/nabor-emkostey-gsi-soft-sides-condiment-paks-bottle-set-4-60-ml/
+
 
 
 Фляга GSI GLACIER STAINLESS Hip Flask 8 має ергономічний дизайн, зручно пасує у кишені. Виготовлена з нержавіючої сталі, що робить її міцною та витривалою. Завдяки широкій горлянці її зручно наповнювати. Сумку для зберігання можливо використовувати, як ганчірку для чищення фляги. Надійна різьбова кришка причеплена хомутом до горлянки фляги.
